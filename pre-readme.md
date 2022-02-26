@@ -2,6 +2,7 @@
 
 По всей России обычные люди и члены профессиональных сообществ выступают против военных действий на территории Украины
 - [Общая петиция на change.org](https://www.change.org/p/остановить-войну-с-украиной-2ce0a2d7-b957-4e23-981a-c67a26e2b0b7)
+- [Открытое письмо представителей российской ИТ-индустрии](https://docs.google.com/forms/d/e/1FAIpQLScEsxsoXl_7R4aD5F8-B7fCCBVwU_BXBaOVJsKszbFyRHRkkw/viewform)
 - [Открытое письмо учёных и научных журналистов](https://echo.msk.ru/blog/echomsk/2985101-echo/)
 - [Открытое письмо российских работников культуры и искусства](https://spectate.ru/art-workers-public-letter/)
 - [Открытое письмо российских учителей](https://www.teachnotwar.org/)
